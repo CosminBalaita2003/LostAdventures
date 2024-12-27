@@ -1,4 +1,4 @@
-# Context 🌍✨
+# Lost Adventures 🌍✨
 
 Într-o lume fantastică, plină de mistere și secrete, jucătorul găsește o hartă veche 🗺️ ce duce către un loc legendar numit **„Sselemit”**, devenind căutătorul comorilor pierdute din vremea titanilor 🏺. Harta îl conduce pe jucător pe un drum plin de relicve și obiecte magice 🔮 ce îl vor ajuta să depășească obstacolele și puzzle-urile complexe 🧩. Povestea urmărește călătoria jucătorului de la un sătuc modest 🏡 până la explorarea unor tărâmuri uimitoare, unde va descoperi nu doar comori 💎, ci și povești despre trecutul lumii 📜.
 
